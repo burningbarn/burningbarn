@@ -5,5 +5,5 @@
 <img width="200" src="https://64.media.tumblr.com/d4a3705d8b1afd4640d2f33c86bdec4f/5e495bb83d0085ce-90/s1280x1920/45bf21e36de3bc01d1b6f766bcdb7857f989dcc6.pnj">
 </p>
 <p align="center">
-tis  is  a  wip  . . .  (..◜ᴗ◝..)  check  our  links  instead  !
+𝑡𝑖𝑠  𝑖𝑠  𝑎  𝑤𝑖𝑝  . . .  (..◜ᴗ◝..)  𝑐𝘩𝑒𝑐𝑘  𝑜𝑢𝑟  𝓁𝑖𝑛𝑘𝑠  𝑖𝑛𝑠𝑡𝑒𝑎𝑑  !
 </p>
