@@ -1,9 +1,9 @@
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/c2ac56be3ee8df8ea40c1bc9ee2a6d36/5c946af0eadf9488-15/s1280x1920/b2767c9d53bbaf17bfb77751ff1b73fe70a49c58.pnj" width="600" title="">
+  <img src="https://64.media.tumblr.com/ae6092d65ac6feb54d425333061a4f4b/9b3d23371e389d3a-f4/s2048x3072/ecc4bfcd66458db3a337db58c11e7ee3d249f030.pnj" width="600" title="">
   </p>
   <p align="center">
-  <img src="https://64.media.tumblr.com/58500196fbe69e5fd9e1670b67430ea6/830a934fb0fc304a-1f/s540x810/4583d8f5e2e1fb7c86f147c5b5eaaa82844a574f.pnj" width="300" title="">
+  <img src="https://64.media.tumblr.com/0d5d97309f411200103910b8d47dea89/620c3dc332ab772c-a5/s75x75_c1/8794a1d96a0a4ff37abf93978af3f60092161618.gifv" width="300" title="">
   </p>
   <p align="center">
   𝐏𝑟ophet ◞ 𝐂𝑎thedral
@@ -18,4 +18,4 @@ tak𝐞n ♡ 06.23.24 ⠀ eng 𝐩l
 https://rentry.co/burnthebarn
   </p>
   <p align="center">
-<img src="https://64.media.tumblr.com/b91f8efeb5ed3dcf8051d914423a5af1/5c946af0eadf9488-3a/s1280x1920/d54423f73aec05898b3815a9bc38282cb0451ad8.pnj" width="600" title="">
+<img src="https://64.media.tumblr.com/fb2c1a8731189c7374e8e744af86fa60/9b3d23371e389d3a-ec/s2048x3072/3ab5e4c4f8b0a38e9b6a867372fe3468864bdac0.pnj" width="600" title="">
