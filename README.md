@@ -6,7 +6,7 @@
   <img src="https://64.media.tumblr.com/0d5d97309f411200103910b8d47dea89/620c3dc332ab772c-a5/s75x75_c1/8794a1d96a0a4ff37abf93978af3f60092161618.gifv" width="100" title="">
   </p>
   <p align="center">
-  𝐏𝑟ophet ◞ 𝐂𝑎thedral
+  𝐏𝑟ophet ◞ 𝐒𝑐𝑎recrow
   </p>
   <p align="center">
 scyt𝐡e 𝐡e s𝐡e⠀⠀𝐬lavic⠀⠀autistic
